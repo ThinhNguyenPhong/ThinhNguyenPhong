@@ -1,4 +1,4 @@
-# 😎 Hello guys, I'm ThinhNguyenPhong 
+# 😎 Hello guys, I'm ThinhNguyenPhong!
 👨‍💻I am a Software Engineer, adapts and loves new technologies and wants to research and develop them to become perfect from time to time.<br>🎓Studied Software Engineering at FPT University in Ho Chi Minh City, Vietnam<br>✈️I have a passion for traveling and exploring, and especially backpacking on my own<br>📊Currently learning about data analytics📉 and chinese📚🀄.
 
 
